@@ -12,5 +12,7 @@ Here are some of the tasks i did :
  I collection of secondary data through different websites and publications.
  I converted that to primary data
  
+Email: gopathisaisudha
 
+linkedin: https://www.linkedin.com/in/gopathi-sai-sudha-26b67427a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
    
