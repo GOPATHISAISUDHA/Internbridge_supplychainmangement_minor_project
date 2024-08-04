@@ -1,0 +1,1 @@
+# Internbridge_supplychainmangement_minor_project
